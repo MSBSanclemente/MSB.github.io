@@ -24,7 +24,7 @@
 
 >It's an art to live with pain... mix the light into gray
 
-[Pearl Jam en la wikipedia:] (https://es.wikipedia.org/wiki/Pearl_Jam)
+[Pearl Jam en la wikipedia:](https://es.wikipedia.org/wiki/Pearl_Jam)
 
 Fan Club, dirección postal:
 
