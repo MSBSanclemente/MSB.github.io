@@ -24,7 +24,6 @@
 
 >It's an art to live with pain... mix the light into gray
 
-
 Pearl Jam en la wikipedia: 
 
 https://es.wikipedia.org/wiki/Pearl_Jam
@@ -33,5 +32,9 @@ Fan Club, dirección postal:
 
  ` Mailing Address TEN CLUB PO BOX 81429. SEATTLE, WA 98108 `
  
-  ![Foto Oakland] *CC BY-SA 3.0* (https://github.com/MSBSanclemente/MSB.github.io/blob/main/1024px-PearlJam-Oakland-2013.jfif)
+  ![Foto Oakland] *CC BY-SA 3.0*
+  
+  
+![1024px-PearlJam-Oakland](https://user-images.githubusercontent.com/79587780/109804563-abeb7800-7c22-11eb-86d2-4a3cc080b254.jpg)
+
   
