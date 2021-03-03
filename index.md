@@ -23,7 +23,7 @@
 >I knew all the rules, but the rules did not know me
 
 >It's an art to live with pain... mix the light into gray
-_________________________________________________________
+
 
 Pearl Jam en la wikipedia: 
 
