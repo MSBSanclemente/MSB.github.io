@@ -32,7 +32,7 @@ Fan Club, dirección postal:
 
  ` Mailing Address TEN CLUB PO BOX 81429. SEATTLE, WA 98108 `
  
-  ![Foto Oakland] *CC BY-SA 3.0*
+  [Foto Oakland] *CC BY-SA 3.0*
   
   
 ![1024px-PearlJam-Oakland](https://user-images.githubusercontent.com/79587780/109804563-abeb7800-7c22-11eb-86d2-4a3cc080b254.jpg)
